@@ -1,1 +1,0 @@
-# Rigby_cat_meme
